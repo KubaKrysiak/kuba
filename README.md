@@ -1,0 +1,2 @@
+# kuba
+makapaka czysci kamienie
